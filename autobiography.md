@@ -22,6 +22,8 @@ It lasted well until 6th grade. Because the middle school had started and we got
 
 Since that, everything started to change gradually. And everyone realized that the time had come, and we should to change our attitude towards school, unless we wanted to drop out. It wasn't just a plain school any more, it was a gymnasium; thus they were not obligated to keep such students.
 
+## School 8-9 grades
+
 After 7th grade I came to understand that it is a perfect time to start studying, and I did. It was quite hard to start, I've already wasted so much time. And I didn't have enough of it back then. I was training myself acrobatics intensively, I was passionate about it. And I have made significant achievements there to.
 
 Fortunately, I have managed to put my grades up to an avearage rate at the end of 8th grade. Sooner, I began to progress even more quickly. That was the time when everyone kinda rediscovered the interst in academics, importance of which we had always underestimated. I moved in class ranking dramatically, I was in top 3 and moved to second position at the and of 9th grade.
